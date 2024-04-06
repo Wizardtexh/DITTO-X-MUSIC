@@ -4,8 +4,7 @@
 
 
 
-<p align="center"><a href="https://t.me/Ditto_999"><img src="https://telegra.ph/file/ec9abca4f8076a96956fa.jpg" width="400"></a></p>
-
+<p align="center"><a href="https://t.me/uh_knew_naksh"><img src="https://telegra.ph/file/8b9b389d2389201ee4d6b.jpg" width="400"></a></p>
 
 
 
