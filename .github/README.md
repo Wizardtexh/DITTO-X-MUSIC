@@ -1,11 +1,10 @@
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+<p align="center"><a href="https://t.me/uh_knew_naksh"><img src="https://telegra.ph/file/8b9b389d2389201ee4d6b.jpg" width="400"></a></p>
 
-<h1 align="center"><b> ѴƖƤ ƉƖƬƬѲ βѲƬ</b></h1>
+<h1 align="center"><b> papa ye to  naksh ka βѲƬ h</b></h1>
 
 
 
-<p align="center"><a href="https://t.me/Ditto_999"><img src="https://telegra.ph/file/ec9abca4f8076a96956fa.jpg" width="400"></a></p>
-
+<p align="center"><a href="https://t.me/uh_knew_naksh"><img src="https://telegra.ph/file/8b9b389d2389201ee4d6b.jpg" width="400"></a></p>
 
 
 
